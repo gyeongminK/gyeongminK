@@ -14,6 +14,11 @@
 
 <br>
 
+### Blog 🌱
+- https://eeveelog.tistory.com/
+
+<br>
+
 ### Contacts ✉️ 
 - sally.k9949@gamil.com
 - sally_k@naver.com
