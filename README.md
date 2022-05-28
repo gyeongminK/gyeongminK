@@ -20,7 +20,7 @@
 <br>
 
 ### Contacts ✉️ 
-- sally.k9949@gamil.com
+- sally.k9949@gmail.com
 - sally_k@naver.com
 
 <!--
