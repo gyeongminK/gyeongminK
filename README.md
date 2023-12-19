@@ -8,7 +8,6 @@
 
 ### Blog ✨
 - https://eeveelog.tistory.com/
-- https://blog.naver.com/eeveelog
 
 <br>
 
